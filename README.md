@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @stripboy666
+- 👀 I’m interested in minecraft
+- 🌱 I’m currently learning c++
+- 💞️ I’m going to make some friends
+- 📫 zwt666zwt@outlook.com
